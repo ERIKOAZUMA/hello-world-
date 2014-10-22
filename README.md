@@ -7,3 +7,5 @@ and I am a menber of RIT
 He　is　my　teacher！
 
 Yes!! I am your teacher
+
+Have you made to the end in Partchwork Tokyo?
